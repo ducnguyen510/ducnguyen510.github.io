@@ -5,4 +5,4 @@ I have a deep interest in computer science and a thirst for knowledge. I strongl
 
 My interests include computer systems, music and psychology.
 
-In free time, i enjoy reading book, travel and play guitar.
+In free time, i enjoy reading book, talk with friend and learn something new.
